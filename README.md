@@ -1,4 +1,4 @@
-## Sobre mí
+## Hola, soy Valentina 💗
 
 - **País:** Bolivia
 - **Edad:** 19 años
